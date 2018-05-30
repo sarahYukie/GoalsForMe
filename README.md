@@ -17,4 +17,4 @@ Goals for 2018
 4. Appreciate people around me. Smile at & respect everyone. 
 5. Help people around me. 
 6. Remind myself of how lucky I am to be able to study at OIST
-7. Don't talk about ex-boyfriends anymore. Theres no point to this....
+
